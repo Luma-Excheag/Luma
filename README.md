@@ -113,7 +113,7 @@ Uso restrito e controlado.
 ## 📫 Contato
 
 Para parcerias, integrações ou interesse institucional:  
-**contato@luma.exchange** *(exemplo)*
+*(Em breve)*
 
 ---
 
